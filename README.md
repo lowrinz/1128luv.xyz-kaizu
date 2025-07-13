@@ -1,1 +1,1 @@
-# 1128luv.xyz-kaizu
+# 1128luv.xyz/kaizu
